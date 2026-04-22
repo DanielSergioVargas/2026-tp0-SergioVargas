@@ -1,6 +1,6 @@
 ## Sergio Daniel Vargas
 
-### Legajo: 1860860
+### Legajo: 1640860
 
 Si bien me llamo Sergio, comunmente y desde que tengo uso de razón siempre me reconocieron/llamaron por mi segundo nombre. Tengo 33 años y trabajo desde siempre en un negocio familiar hace ya 17 años.
 
